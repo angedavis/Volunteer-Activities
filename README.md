@@ -42,7 +42,8 @@ There is one caveat about using administrative leave: no component may place an 
 Guidance on Scheduling Work and Granting Time Off to Permit Federal Employees to Participate in Volunteer Activities
 https://www.opm.gov/policy-data-oversight/pay-leave/leave-administration/fact-sheets/related-information/
 
+Strengthening our Commitment to Service - A Report to the President on Measures Taken by Executive Departments and Agencies (1988)
 https://www.opm.gov/policy-data-oversight/pay-leave/reference-materials/reports/strengthening-our-commitment-to-service/
 
-Voluteer Resources:
+Voluteer Resources - find a volunteering opportunity:
 https://www.nationalservice.gov/serve
